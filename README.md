@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnaGalvis
-- 👀 I’m interested in nature, cultures, food, friends family 
+- 👀 I’m interested in nature, cultures, food...
 - 🌱 I’m currently learning to code ( HTML and CSS)
 - 💞️ I’m looking to collaborate on I am no sure yet... lets see
 - 📫 How to reach me? Just email me
